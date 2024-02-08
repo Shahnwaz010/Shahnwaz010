@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Instagram and Facebook
+- 📫 How to reach me through  Instagram and Facebook
 - 😄 Pronouns: He
 - ⚡ Fun fact: NO fact 
 
